@@ -9,4 +9,4 @@ I'm currently studying to become a Software Engineer and looking to transition i
 - 💬 Ask me about ... my transferable skills!
 - 📫 How to reach me: vanessabarkerpt@outlook.com
 - 😄 Pronouns: she/ her
-- ⚡ Fun fact: I like painting birthday cards for friends (this is my love language) and let my 11 year old son cut my hair.
+- ⚡ Fun fact: I like painting birthday cards for friends (this is my love language).
